@@ -1,0 +1,1 @@
+# blogger_idafat-templa-arba7
